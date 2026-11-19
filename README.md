@@ -1,2 +1,0 @@
-# CUMPLEA-OS
-feliz cumpleaños
